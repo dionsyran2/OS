@@ -1,3 +1,3 @@
 # OS
 
-Nothing
+I do not recomend anyone to use this
